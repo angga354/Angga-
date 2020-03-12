@@ -1,2 +1,0 @@
-# Angga-
-Tes aja
